@@ -1,1 +1,1 @@
-# Smart-surveillance-
+# Smart surveillance
